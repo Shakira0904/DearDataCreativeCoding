@@ -1,2 +1,3 @@
 # DearDataCreativeCoding
-Creative Coding
+I decided to collect information on the amount of times I redo my 'lip combo'. In other words, it is the number of times I apply a product (or products) onto my lips, most often for cosmetic purposes. I made the decision to document the use of 5 different lip products, lip liner, lip cream, lip stick, lip balm and lip gloss! And so not only did I document the frequency of when I applied one or more of these items, but I also kept a record of why I applied (or reapplied) and where I did so. As of the moment, I have collected over a weeks worth of data which has summed up to be around 25 different moments as to when I did my lips. 
+
